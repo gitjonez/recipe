@@ -7,8 +7,7 @@ Yield: 2 crusts*
 A very basic pie crust recipe.  I've
 used this recipe for berry pie and many quiches. 
 There are *many, many* variants which you may want to
-consult.  I would use these quantities to make one pie 
-to start with. 
+consult.  I would use these quantities to make one pie to start with – too much is better than not enough. 
 
 \*For a sweet pie half the salt. With lightly salted butter, I half the salt. You still probably want a pinch or two of salt
 for a sweet, unsalted butter crust. 
@@ -17,7 +16,7 @@ for a sweet, unsalted butter crust.
 - 2 1/2 Cups All-Purpose Flour
 - 2 Tbsp Sugar*
 - 1 tsp Salt (kosher/flake)*
-- 20 Tbsp Cold Kerrygold (10 Oz)
+- 20 Tbsp Cold butter (10 Oz)
 - 6 Tbsp Ice cold water
 
 ## Directions
