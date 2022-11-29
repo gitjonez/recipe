@@ -45,3 +45,12 @@ until things start to clump up slightly
 be able squish the mixture into into a clump. If it's not
 holding together at all, try another 2-3 Tbsp ice cold water,
 as above
+1. If it's a warm day, form a big ball, squish into rough
+disk and rest in the fridge for ~40-50 minutes. 
+1. Take half the dough and roll with flour into a pie crust, 
+approx 1/3 inch thick. You can take the pie dish or target 
+vessel and flip it upside-down to size up your crust 
+(or use a tape measure).  If the dish is 1" deep you'll need
+an additional 1.2" of diameter. 
+1. Press gently into the dish and use excess to patch if necessary, and/or roll out the top crust. Keep refrigerated until final assembly
+
