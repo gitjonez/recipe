@@ -35,16 +35,18 @@ pulse 3-4 times to combine
 1. Chop the butter into 1/2 inch squares and evenly place over
 the flour mixture in the food processor 
 1. Replace the top and pulse about once per second until the 
-chunks of butter are smaller than a grain of rice.  About 10-20
+chunks of butter are smaller than a grain of rice.  About 10-15
 times – it might not resemble dough yet
 1. Remove the plunger and while holding down the pulse button 
 pour in the water over a 3-4 second pulse
-1. Replace the plunger and resume one pulse per second 5-10 pulses
-until things start to clump up slightly 
+1. Replace the plunger and resume one pulse per second
+for 5-10 pulses until things start to clump up slightly. 
 1. Remove the lid and without contacting the blade you should
-be able squish the mixture into into a clump. If it's not
-holding together at all, try another 2-3 Tbsp ice cold water,
-as above
+be able squish the mixture into into a clump. 
+If it's *not* mostly integrated or holding together at all, 
+or very dry, try another 2-3 Tbsp ice cold water,
+as above.  The dough will probably seem too dry but should 
+appear more most when forming a ball. 
 1. If it's a warm day, form a big ball, squish into rough
 disk and rest in the fridge for ~40-50 minutes. 
 1. Take half the dough and roll with flour into a pie crust, 
