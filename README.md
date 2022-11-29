@@ -5,5 +5,7 @@ Recipes
 None yet
 
 ## Recipes 
-recipes/
+see:
+- recipes/pie-crust
+- recipes/quiche
 
