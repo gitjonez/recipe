@@ -24,15 +24,17 @@ From the definition of the `@gitjonez` unabridged dictionary:
 1. Grate cheeses
 1. Chop parsley
 1. Beat eggs
+2. Add milk/½&½ to eggs – beat a little more
 1. Fill pie crust: 
   Layer/mix parsely, cheese, a turn of the pepper grinder.  
-  Filling should be almost to the rim, 3/4 to 4/5-ish.
+  Filling should be almost to the rim, 3/4 to 4/5-ish to the rim.
   Floaty stuff should be near the bottom or 
   middle – it may all float 
   to the top
-1. Gently pour in beaten egg/milk mixture5
+1. Gently pour in beaten egg/milk mixture
 1. Bake, on center rack for approximately 40-50 minutes. 
-Do not over cook. If you jiggle the rack or pan, there should
+Definitely check after 20 min, every 5 min. 
+Do not over-cook. If you jiggle the rack or pan, there should
 be no "sloshing" of the filling.  Once the sloshing stops
 and it's firm-ish to the center, turn off the heat
 immediately. If any doubt, leave in the (heat turned off) 
