@@ -5,6 +5,6 @@ Recipes
 None yet
 
 ## Recipes 
-- [pie-crust](pie-crust/README.md)
+- [pie-crust](pie-crust/)
 - [quiche](quiche/)
-- recipes/pancakes
+- [pancakes](pancakes/)
