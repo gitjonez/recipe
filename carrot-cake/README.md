@@ -1,21 +1,21 @@
 # Girlie's Frosted Carrot Cake
 
-"From Wilm"
+From @Madison "From Wilm"
 
 ## Ingredients
 
-|            |                              |
-| ---------- | ---------------------------- |
-| 1-1/2 cups | oil                          |
-| 2 cups     | Sugar                        |
-| 4 large    | Eggs – beat in one at a time |
-| 2 cups     | all-purpose Flour            |
-| 2 tsp      | Baking Soda                  |
-| 2 tsp      | Baking Powder                |
-| 3 cups     | grated Carrots               |
-| 1 20oz can | crushed Pineapple, drained   |
-| 2 tsp      | cinnamon                     |
-| 1 cup      | chopped Walnuts              |
+|             |                              |
+| ----------- | ---------------------------- |
+| 1-1/2 cups  | oil                          |
+| 2 cups      | Sugar                        |
+| 4 large     | Eggs – beat in one at a time |
+| 2 cups      | all-purpose Flour            |
+| 2 tsp       | Baking Soda                  |
+| 2 tsp       | Baking Powder                |
+| 3 cups      | grated Carrots               |
+| 1 20 oz can | crushed Pineapple, drained   |
+| 2 tsp       | cinnamon                     |
+| 1 cup       | chopped Walnuts              |
 
 ## Instructions
 
