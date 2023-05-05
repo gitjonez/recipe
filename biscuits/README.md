@@ -1,4 +1,4 @@
-# buttermilk biscuits
+# Buttermilk Biscuits
 Inspired by https://www.thechunkychef.com/buttermilk-biscuits/
 
 ## Ingredients
