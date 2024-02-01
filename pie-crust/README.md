@@ -12,6 +12,8 @@ consult.  I would use these quantities to make one pie to start with – too muc
 \*For a sweet pie half the salt. With lightly salted butter, I half the salt. You still probably want a pinch or two of salt
 for a sweet, unsalted butter crust. 
 
+\*For a savory pie, omit the sugar
+
 ## Ingredients
 - 2 1/2 Cups All-Purpose Flour
 - 2 Tbsp Sugar*
