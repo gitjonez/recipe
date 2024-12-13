@@ -10,3 +10,4 @@ None yet
 - [pancakes](pancakes/)
 - [carrot-cake](carrot-cake/)
 - [biscuits](biscuits/)
+- [beef-stew](beef-stew/)
