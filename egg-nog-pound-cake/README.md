@@ -1,4 +1,5 @@
 # Eggnog Pound Cake
+Note: came out a bit dry
 ## Ingredients
 ### Wet Team
 - ½ cup softened butter
