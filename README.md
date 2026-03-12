@@ -11,3 +11,4 @@ None yet
 - [carrot-cake](carrot-cake/)
 - [biscuits](biscuits/)
 - [beef-stew](beef-stew/)
+- [rosemary-chicken](rosemary-chicken/)
