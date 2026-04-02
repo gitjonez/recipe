@@ -1,4 +1,5 @@
-# Rosemary Chicken
+# Butter Chicken
+A classic Indian curry, also known as Murgh Makhani
 
 ## Ingredients
 
