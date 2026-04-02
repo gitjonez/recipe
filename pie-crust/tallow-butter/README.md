@@ -19,16 +19,16 @@ Pre-chill all the ingredients to fridge temp for 30-40 minutes.
 
 # Directions
 - Cool all ingredients in the fridge
-- Add 1 c of the flour (125 ish grams) to food processor
-- Toss cubed butter and cubed tallow
+- Add 1 cup of the flour (125 ish grams) to food processor
+- Add cubed butter, cubed tallow, and toss in the flour
 - Pulse till it _just starts_ to come together – a very rough mix –
 About 8 pulses
-- Mix remaining flour and salt then, add to the rough mix
+- Mix remaining flour and salt. Then, add to the rough mix
 - Pulse perhaps 10 times until it's a coarse sawdust texture
 - Hold down the pulse button while pouring in half of the water
 - Check and stir out any dry patches.
 Continue to add water 1-2 Tbsp at a time, if necessary. 
-The mixture should look coarsely combined and will form a ball
+The mixture should look coarsely combined and should form a ball. Use enough cold water for the pastry to hold together, without over mixing. Over mixing will produce a chewy 
 - Form a ball or two and flatten somewhat
 - Wrap in plastic wrap or cover and chill in the fridge for a minimum of 60 minutes
 - Roll out your dough on a clean work surface dusted with flour to your liking and assemble your pie! 
