@@ -3,6 +3,8 @@ A classic Indian curry, also known as Murgh Makhani
 
 ## TODO
 - add procedure
+- find better recipe
+- https://www.recipetineats.com/butter-chicken/ 
 
 ## Ingredients
 
