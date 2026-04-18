@@ -14,6 +14,14 @@ overnight and then blend into a slurry.
 
 ## Ingredients 
 
-- 
+- 125 g oatmeal,
+fine or medium see Recipe Note 1 including making your own
+75 g wholemeal bread flour or plain wholemeal flour: see Recipe Note 2
+50 g plain white flour can be replaced with more wholemeal flour
+1 tsp instant dry yeast the type that doesn't need activating first
+1 tsp salt
+250 ml water
+250 ml milk can be replaced with more water: see Recipe Note 3
+oil e.g. sunflower for greasing griddle or pan
 
 ## Directions
