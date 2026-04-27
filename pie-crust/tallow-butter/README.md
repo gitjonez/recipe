@@ -11,7 +11,7 @@ Pre-chill all the ingredients to fridge temp for 30-40 minutes.
 
 # Ingredients
 - 2/3 cup beef tallow (137g)
-- 1 stick (½ cup) cold butter (137g)
+- 1 stick (½ cup) cold butter (113g)
 - 2½ cups all purpose flour (305g)
 - ½ cup ice cold water (4 fl oz)
 - 1 tsp apple cider vinegar
