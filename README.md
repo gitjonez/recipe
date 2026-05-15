@@ -5,6 +5,7 @@ Recipes
 None yet
 
 ## Recipes 
+- [butter-chicken (murgh-makhani)](butter-chicken)
 - [pie-crust](pie-crust/)
   - [basic-butter](pie-crust/basic-butter/)
   - [tallow-butter](pie-crust/tallow-butter/)

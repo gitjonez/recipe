@@ -1,4 +1,4 @@
-# Butter Chicken
+# Butter Chicken – Murgh Makhani
 A classic Indian curry, also known as Murgh Makhani
 
 ## TODO
