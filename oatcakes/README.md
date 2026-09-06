@@ -1,4 +1,7 @@
 # Staffordshire Oatcakes
+
+This is a work in progress. 
+
 Source:
 [Moorlandseater.com](https://moorlandseater.com/staffordshire-oatcakes-recipe/)
 
@@ -14,7 +17,7 @@ overnight and then blend into a slurry.
 
 ## Ingredients 
 
-- 125 g oatmeal,
+- 125 g oatmeal
 fine or medium see Recipe Note 1 including making your own
 75 g wholemeal bread flour or plain wholemeal flour: see Recipe Note 2
 50 g plain white flour can be replaced with more wholemeal flour
@@ -25,3 +28,4 @@ fine or medium see Recipe Note 1 including making your own
 oil e.g. sunflower for greasing griddle or pan
 
 ## Directions
+WIP
