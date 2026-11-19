@@ -1,4 +1,5 @@
-# Basic chedder sauce
+# Basic chedder sauce / Nacho!
+See tips for variants
 
 ## Ingredients
 
