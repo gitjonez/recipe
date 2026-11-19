@@ -32,7 +32,7 @@ incorporated.
 - Keep the sauce under 175ºF / 80ºC at all times. 
 This will keep the sauce from breaking. 
 - This spicy, oniony version is what I call Nacho cheese but, 
-Skip the vegetables and replace the spicyness with paprika
+skip the vegetables and replace the spicyness with paprika
 and/or mustard powder for a more classic cheese sauce. 
 You can also replace some or all of the milk with beer for a
 cheddar beer dip!  
