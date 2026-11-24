@@ -17,3 +17,4 @@ None yet
 - [beef-stew](beef-stew/)
 - [rosemary-chicken](rosemary-chicken/)
 - [sauce-cheddar-nacho](sauce/nacho/)
+- [stuffed-mushrooms](stuffed-mushrooms/)
